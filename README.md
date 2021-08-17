@@ -5,4 +5,4 @@ legger på linje i dag 14.8.21, kl 1227,
 
 her er en linje til
 
-enda en linje
+retter i dag - enda en linje
