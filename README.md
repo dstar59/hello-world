@@ -5,4 +5,4 @@ legger på linje i dag 14.8.21, kl 1227,
 
 her er en linje til
 
-retter i dag - enda en linje
+18-8-21 - retter i dag - enda en linje
